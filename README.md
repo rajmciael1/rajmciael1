@@ -2,7 +2,7 @@
 - 👀 I’m interested in find a job
 - 🌱 I’m currently learning video edition
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+- 📫 How to reach me: instagram(https://www.instagram.com/raj.micael/)
 
 <!---
 rajmciael1/rajmciael1 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
